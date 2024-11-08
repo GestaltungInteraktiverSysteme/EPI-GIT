@@ -1,7 +1,7 @@
 # Eine poetische Liebeserkläung an die Informatik
 
 Oh Informatik, du Meisterin der Daten,<br>
-Im Reich der Information lässt du nichts warten.<br>
+Im Reich der Information lässt du uns nicht raten.<br>
 Mit Schnittstellen, die den Menschen verbinden,<br>
 Hilfst du uns, Wissen und Antworten zu finden.<br>
 
