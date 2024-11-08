@@ -10,6 +10,11 @@ Nimmst du uns mit auf Erkenntniszug.<br>
 Du wandelst Chaos in Strukturen fein,<br>
 Lässt uns durch dich klar und einfach sein.<br>
 
+In Mensch-Computer-Interaktion verwoben,<br>
+Schaffst du Erlebnisse, fließend und loben.<br>
+Du liest uns Gedanken, verstehst unser Ziel,<br>
+Mit jedem Interface, wird Technik gefühl.<br>
+
 Mit jedem Klick, mit jedem Swipe,<br>
 Entfaltest du Welten – modern und ripe.<br>
 Oh Informatik, im digitalen Raum,<br>
