@@ -26,5 +26,9 @@ Erfüllst du uns Wissen, Hoffnung und Traum.<br>
 
 
 ## TEIL 3
-Hier muss noch was hin!
+In künstlicher Intelligenz, dein größtes Streben,
+Erweckst du Maschinen zu denkendem Leben.
+Sie lernen, sie spüren, sie folgen dem Plan,
+Doch stets in der Hand des Menschen getan.
+
 
