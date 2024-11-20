@@ -26,5 +26,5 @@ Erfüllst du uns Wissen, Hoffnung und Traum.<br>
 
 
 ## TEIL 3
-Hier muss noch was hin!
+ja, eine Strophe zu Security
 
